@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=ivangaze&color=ffaece&label=ㅤ+ㅤ+lovers+ㅤ+ㅤ&style=plastic&base=1324)
+![](https://komarev.com/ghpvc/?username=ivangaze&color=ffaece&label=ㅤ+ㅤ+peasants+ㅤ+ㅤ&style=plastic&base=1324)
 
 
 <div align="center"> 
