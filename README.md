@@ -4,7 +4,6 @@
 
 
 <div align="center"> 
-  <a href="https://ibb.co/RT97Wwbg"><img src="https://i.ibb.co/qYdxwQjD/owaa.png" alt="owaa" border="0"></a>
-  <div align="center">
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/yvKc6PF/Untitled1524-20251003155145.png" alt="Untitled1524-20251003155145" border="0"></a>
     
   $\textcolor{hotpink}{\textsf{“ㅤOneㅤday,ㅤwe’llㅤgetㅤmarriedㅤ”}}$
