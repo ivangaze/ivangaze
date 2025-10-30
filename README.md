@@ -6,4 +6,4 @@
 <div align="center"> 
 <img src="https://i.ibb.co/5xXW5J7x/po-20251030235034.png" alt="po-20251030235034" border="0"></a>
 
-[<img src="https://i.ibb.co/7PdJBcw/Untitled1527-20251003162231.png" alt="Untitled1527-20251003162231" border="0"></a>](https://virange.atabook.org) [<img src="https://i.ibb.co/0pNDWCTX/Untitled1527-20251003162453.png" alt="Untitled1527-20251003162453" border="0"></a>](https://ivangaze.straw.page)
+[<img src="https://i.ibb.co/RXHKBKC/IMG-20251031-000232.png" alt="IMG-20251031-000232" border="0"></a>](https://virange.atabook.org) [<img src="https://i.ibb.co/VpgXHKHX/Untitled6-20251030235618.png" alt="Untitled6-20251030235618" border="0"></a>](https://ivangaze.straw.page)
