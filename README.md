@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=ivangaze&color=8b003d&label=ㅤ+ㅤ+elation+ㅤ+ㅤ&style=plastic&base=1324&abbreviated=true)
+<img alt="Hits" src="https://hits.sh/github.com/ivangaze/hits.svg?style=plastic&label=elation&extraCount=3478&color=9c0034&labelColor=db1b4e"/></a>
 
 
 <div align="center"> 
