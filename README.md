@@ -1,6 +1,6 @@
 <div align="center">
 
-<img alt="Hits" src="https://hits.sh/github.com/ivangaze/hits.svg?style=plastic&label=elation&extraCount=3478&color=9c0034&labelColor=db1b4e"/></a>
+<img alt="Hits" src="https://hits.sh/github.com/ivangaze.svg?style=plastic&label=poopy&extraCount=6270&color=d8001d&labelColor=bd0018"/>
 
 <div align="center"> 
 <img src="https://imgbb.virdigi.com/i/da012a1f-0cd1-4493-8b6f-86de5798995d.png">
